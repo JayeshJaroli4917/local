@@ -1,4 +1,3 @@
 myself jayesh
-I'm from udaipur
-<br>
-statred new journey in jaipur
+i'm statring something new on 28
+i'm currently exploring myself.
